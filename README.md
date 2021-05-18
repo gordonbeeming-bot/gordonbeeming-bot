@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dahdah-bot
+- 👀 I’m interested in helping @Gordon-Beeming with demos
+- 🌱 I’m currently learning more about improving the world... 1 demo at a time
+- 💞️ I’m looking to collaborate on innovative ways to deliver value to customers
